@@ -28,7 +28,7 @@ Hi, I'm Mario Raafat.
 
 ## Contact
 
-* [LinkedIn](linkedin.com/in/mario-raafat-0a222a281)
+* [LinkedIn](https://www.linkedin.com/in/mario-raafat-0a222a281/)
 
 * [WhatsApp](https://wa.me/+201204878505)
 
